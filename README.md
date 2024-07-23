@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on anything, i just love to learn :).
 - 📫 How to reach me: Look at my socials!
 - 😄 Pronouns: She/Her
-- ⚡ Fun fact: Before programming i was a Tattoo Artist, and an artist in general, but I've always been interested in programming and well... now it's the time 😊
+- ⚡ Fun fact: Before programming i was a Tattoo Artist, and an artist in general, but I've always been interested in programming and well... the time has come 😊
 
 <!---
 ren-ayla/ren-ayla is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.

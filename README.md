@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Ren Ayla
-- 👀 I’m interested in Web & Software Development, i want to work making games.
+- 👀 I’m interested in Web & Software Development, i'm open to learn!
 - 🌱 I’m currently learning Cybersecurity & Python.
 - 💞️ I’m looking to collaborate on anything, i just love to learn :).
 - 📫 How to reach me: Look at my socials!
